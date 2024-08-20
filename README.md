@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **tamaralopez3@gmail.com**
 
-- ⚡ Fun fact :- I love 80´s Music🎵 and puppies🥰.
+- ⚡ Fun fact :- I love 80´s Music🎵,puppies🥰, and Traveling(🌍).
 
 <br>
 
